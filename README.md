@@ -14,13 +14,8 @@ Results: Provide a bulleted list with four major points from the two analysis de
 
 
 
-
-
-
-
-
-
-
 Email: equansah1@gmail.com
+
 LinkedIn: https://www.linkedin.com/in/margaret-efua-quansah-596b01209 
+
 Twitter: https://twitter.com/Quansah_Maggie
